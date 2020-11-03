@@ -1,2 +1,2 @@
-# niet-strafbare-bemoeizorg-seriemoord
+# niet-strafbare-bemoeizorg-seriemoorden
 2002-2020
